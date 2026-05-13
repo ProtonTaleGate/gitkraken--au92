@@ -1,4 +1,4 @@
-# 
+# new GitKraken for PC | GitKraken for Windows Workflow | issue-tracking + submodule-management offers the most advanced GitKraken for PC | GitKraken for Windows workflow, with
 
 
 
